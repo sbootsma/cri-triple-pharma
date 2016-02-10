@@ -1,3 +1,3 @@
 # cri-triple-pharma
 
-GIT TO THA CHOPPA!!!
+GIT TO THA CHOPPA NOW!!!
